@@ -33,4 +33,4 @@ Ceniza de sol.
 Lapacho
 
 alma lapacho...
-pull sobre rama diaz
+pull
