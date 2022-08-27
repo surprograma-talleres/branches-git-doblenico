@@ -30,6 +30,7 @@ Solito en el monte
 Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
-De mi corazón.
+linea 33
 
-Lapacho...
+alma lapacho...
+pull
