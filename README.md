@@ -30,6 +30,6 @@ Solito en el monte
 Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
-Lapacho
+De mi corazón.
 
 Lapacho...
